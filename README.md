@@ -11,3 +11,13 @@
 > ✅ **ЗАЩИТА ОТ БАНА**
 
 > ✅ **БЕСПЛАТНЫЙ ЧИТ НА ЗАКАЗ** (До 3 раз за неделю)
+
+> ✅ **ПОДДЕРЖКА BLUESTACKS 5 И 4**
+
+
+## DEVELOPERS
+- [Vorner](https://www.youtube.com/@Vorner-qg5xo)
+
+## CONTACTS
+- [DISCORD SERVER](https://discord.gg/ZKcbmjTA)
+
